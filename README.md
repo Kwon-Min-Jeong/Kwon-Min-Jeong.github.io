@@ -1,1 +1,0 @@
-# Kwon-Min-Jeong.github.io
